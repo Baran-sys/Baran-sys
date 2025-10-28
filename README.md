@@ -1,4 +1,4 @@
-Baran Yıldız
-Konya Tech University 
+Baran Yıldız /
+Konya Tech University /
 Software Engineering Student
 
